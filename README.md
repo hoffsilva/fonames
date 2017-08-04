@@ -48,7 +48,6 @@ Caso se sinta ofendido com a lista clique [aqui](https://goo.gl/DszCTv).
 * **Herson**
   * *Heir Son*
 * **Hoff**
-  * **
   
 ## I
 * **Ismael**
