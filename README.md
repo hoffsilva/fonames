@@ -20,7 +20,7 @@ Caso se sinta ofendido com a lista clique [aqui](https://goo.gl/DszCTv).
   * *A Lan*
 * **Arthur**
   * *Are Tour*
-* **Augsuto**
+* **Augusto**
   * *All Goose Toe*
   
 ## B
